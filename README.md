@@ -1,0 +1,1 @@
+That’s awesome 🚀 — you want to do a 30-day coding challenge (“Dig Deeper Desire” in your words 💡). Let’s structure it in a way that builds consistency and gradually improves your problem-solving skills.
